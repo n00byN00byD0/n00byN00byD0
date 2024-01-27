@@ -55,8 +55,8 @@
            \          old flesh lump between my ears.          \
            
     HOWEVER:
-        -Despite an urnest, reasonable, assurance that code here shouldn't
-        bug brains (or computers), NO GUARENTEES ARE MADE ...
+        -Despite an earnest, reasonable(?), assurance that code here shouldn't
+            bug brains (or computers), NO GUARENTEES ARE MADE ...
             Against that [somewhat outside 🤔] possabilty.
     [END OF DISCLAIMER]
 
@@ -65,5 +65,5 @@
 ###     and share in victories and defeats.
 
 Step by step my projects WILL be understandable,
-    - if not, contact is welcomed (English proffered).
-    No Klingon, No Esperanto, No Esperanto 2.0 please. 
+    - if not, contact is welcomed (English preffered).
+    No Klingon, No Esperanto, No Esperanto 2.0 please

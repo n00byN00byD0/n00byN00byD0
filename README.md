@@ -5,8 +5,16 @@
 - 📫 How to reach me n00byN00byD0@pm.me
 - 😄 Pronouns: [KISS or surprise me! ❤️‍🔥]
 - ⚡ Fun facts: 1) Nothing is as pure a concept as can be.
-                  2) Nothing can negate nothing because, nothing is negatable (with nothing to negate).
+                  2) Nothing is easy to fully understand in purely form without a significant measure 
+                  2) Nothing can negate nothing because, nothing is negatable with nothing to negate.
+                  3) Nothing allows us to reliably change nothing in observance of nature nothing does not exist 
 
+  with the purity of nothing as o only the and reality through observation, very much in a pure action the nature of observation
+
+
+   the experience's reality in the reality of it our nature locked in our deepest thoughtsphilosphicaly in the absence in our deepest thought through will
+  grasping an understanding without flexing ouselves
+  regarding lines of thought as but the effort to reframe our own
   
   '''
       Good code takes skill.

@@ -4,32 +4,26 @@
 - 💞️ I’m looking to collaborate on Java Server code - (under instruction!).
 - 📫 How to reach me n00byN00byD0@pm.me
 - 😄 Pronouns: [KISS or surprise me! ❤️‍🔥]
-- ⚡ Fun fact: Winning is enjoyable.
-- 🤞 So is: the pursuit.
-
-(AS long AS the difficulty level is balanced)
-
+- ⚡ Fun fact: Nothing is pure concept & integral to knowledge
+    [as I endeavour to atomize and rebuild concepts I have just a few tools to use careful, with FOCUS, CONCEPTS, REASON, MEMORYbeing routes of concepts [processed in reason from before their absence from consideration or absorbed.
   '''
-      Good code takes lot's of skill.
-      Truly evil code does too.
+      Good code takes skill.
+      Powerful code does too.
       
-      Unfortunately 😬 the "eye of Sauron" could be realised; in an,
-      only **slightly** different form, soon. (--(Google it!)--)
+      Unfortunately the "Eye of Sauron",
+            -a resonating fiction of a pure magical evil -J. R. R. Tolkien
+      Seems to have aproximately manifested in and into Google.
+
       
-      Where heroes die alone, noobs die en masse.
-      Underestimation is easy (as any noob will tell you) -
-      %50 of young people should survive for 1000yrs 🤔.
-      So no pressure, as we reach the AI a singularity event that'll, shape forever.
       
       /**
        * TODO:
-       * 1) Sprinkle [with ones decernment mainly suspended] seed ideas about (WITHOUT JUNGLE JUICING the tourque required to twist [the] [matrix] [in the page] about) ...
-       *    ... "que, cera, cera" (in amoungst) the undesirable mess (a pile of CRUD) an actual RESULT resides (or at least should) ::
+       * 1) Sprinkle [with decernment mainly suspended] SEED ideas (WITHOUT JUNGLE JUICING the tourque required to twist and twine disconeted rambles of the ) ...
+       *    ... "que, cera, cera" (in amoungst) the undesirable mess a RESULT resides (or at least should) ::
        *                [just a small trace of anything that actually grows] HAS SOME root source of growth.
-       *
-       *    :: "Srg Dignam: Whoopty-F*****g-Do..." [The Departed (movie)]  ::  https://youtu.be/vInFuLgwR1U?si=1ZZ4fkTPnBn1pGCp
-       *           A primordal soup of malformed fairly mindless brainstorming yeilds ::
-       *             Potentially just enough to trigger a feeling of resentment from a begrudging recognition of what living things notice ::
+       *       "Srg Dignam: Whoopty-F*****g-Do..." [The Departed (movie)]  ::  https://youtu.be/vInFuLgwR1U?si=1ZZ4fkTPnBn1pGCp
+       *           Soup of malformed fairly mindless brainstorming yeilds ::
+       *             [Potentially only enough to trigger a begrudging recognition] of what living things notice ::
        *   [THE HOLLY GRAIL HERE, could hypothetically EXIST but from logic CAN'T be FOUND and ABSOLUTELY CAN'T be GRASPED / UTILIZED] ::
        *       Hypothetically AT perfection in description [impossible] map(s) of fine utility can resonate and ABSORB OR BE ABSORBED 
        *        cos cos  it's just the flicker & [evidence - SANS EXTRA context provides only what it is - (is what?) - is evidence!? [begs] of what? - a link in something, somehow! SO WHAT?! LIFE in ART ≅ Recognition of resonance some time [a fizzle of what we strive for but a waste of time] sink where 

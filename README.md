@@ -4,8 +4,10 @@
 - 💞️ I’m looking to collaborate on Java Server code - (under instruction!).
 - 📫 How to reach me n00byN00byD0@pm.me
 - 😄 Pronouns: [KISS or surprise me! ❤️‍🔥]
-- ⚡ Fun fact: Nothing is pure concept & integral to knowledge
-    [as I endeavour to atomize and rebuild concepts I have just a few tools to use careful, with FOCUS, CONCEPTS, REASON, MEMORYbeing routes of concepts [processed in reason from before their absence from consideration or absorbed.
+- ⚡ Fun facts: 1) Nothing is as pure a concept as can be.
+                  2) Nothing can negate nothing because, nothing is negatable (with nothing to negate).
+
+  
   '''
       Good code takes skill.
       Powerful code does too.

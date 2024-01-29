@@ -5,7 +5,27 @@
 - 📫 How to reach me n00byN00byD0@pm.me
 - 😄 Pronouns: [KISS or surprise me! ❤️‍🔥]
 - ⚡ Fun facts: 1) Nothing is as pure a concept as can be.
-                  2) Nothing is easy to fully understand in purely form without a significant measure 
+                  2) Nothing is perfectly-easy to perfectly understand [in ANY situation] :: THUS ::
+                     as all references, in actuality -- from nothing are actually real OBSERVATIONS OR PURE IDEAS to it are have to just
+                UNFORTUNATELY, understanding nothing (or even just not enough) of ANYTHING, THAT IS SIGNIFICANT (but nothing in particular) without the sound refrences TO something can cause delusion mistakes
+
+
+   of (and from it) don't exist anyway except as ideas
+
+   to anything else as not
+
+
+   something relatively similar before as: not just
+
+
+  as what was not presnt as any part of anything ever
+
+  just nothing that was only at the root of the origin
+
+
+  as nothing but that 
+
+   form without a significant measure 
                   2) Nothing can negate nothing because, nothing is negatable with nothing to negate.
                   3) Nothing allows us to reliably change nothing in observance of nature nothing does not exist 
 

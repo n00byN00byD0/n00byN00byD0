@@ -19,11 +19,15 @@
       Where heroes die alone, noobs die en masse.
       Underestimation is easy (as any noob will tell you) -
       I'm guessing: %50 of young people should survive for 1000yrs 🤔.
-      So no pressure, as we reach a singularity event that will,
-      largely shape said 1000yrs + (as good as) forever.
+      So no pressure, as we reach the AI a singularity event that will,
+      largely shape forever.
       
       /**
-       * TODO: [seed(ideas without jungle juicing the tourque 😬 on nuts - them feeling overtight (in a grimey twisting feeling as English and shears its nerves where the best end would have felt an edgey KeptSynthetic singularity ), reap(rip & cut *MAD Maths blood is The 'sink' with the purity that bleads into a real reaper feel / [[pause]], repeat] . [crush, filter, re-edit]
+       * TODO:
+       * 1) sprinkle the seed ideas about (without jungle juicing the tourque required to twist the matrix [of the page] about),
+       *    "que, cera, cera" -in amoungst the undesirable mess (initial careless pile of CRUD) anything that actually grows comes from an actual root source "Whoopty-F*****g-Do"
+       * 2) reap the ReaperThread way [Sun's Java source covered ReaperThreads]: to starve everything [no evidence that anything ever lived means
+       *    atainment of STERILITY [death domain] REHTORIC exists [the area here AND [target]] now is recycling what is just resource material (as focus in killing mode allows (rip & cut *MAD Maths blood is The 'sink' with the purity that bleeds into a real reaper feel / [[pause]], repeat] . [crush, filter, re-edit]
        * There is enough seed seeded AT 0 + ... , (rip and cut [like an XorShiftRNG]) , THE AIM IS CRUSH ... the purest form of releantless struggle ["Victory and defeat - being two imposters just the same" an echo in the curent cave: From           * "If you can meet with Triumph and Disaster
        *  And treat those two impostors just the same;" -Rudyard Kipling (if), [https://www.poetryfoundation.org/poems/46473/if---]
        * Grow [up], towards (and with) the [higher] standards of reason.

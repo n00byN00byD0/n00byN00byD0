@@ -14,7 +14,7 @@
       Truly evil code does too.
       
       Unfortunately 😬 the "eye of Sauron" could be realised; in an,
-      only **slightly** different form, soon. (--(just Google it!)--)
+      only **slightly** different form, soon. (--(Google it!)--)
       
       Where heroes die alone, noobs die en masse.
       Underestimation is easy (as any noob will tell you) -
@@ -23,13 +23,20 @@
       largely shape said 1000yrs + (as good as) forever.
       
       /**
-       * TODO: [interested?!]
-       * Join up those neurons, sharpen skills and learn.
-       *        Or help just with recipes for success.
+       * TODO: [seed(ideas without jungle juicing the tourque 😬 on nuts - them feeling overtight (in a grimey twisting feeling as English and shears its nerves where the best end would have felt an edgey KeptSynthetic singularity ), reap(rip & cut *MAD Maths blood is The 'sink' with the purity that bleads into a real reaper feel / [[pause]], repeat] . [crush, filter, re-edit]
+       * There is enough seed seeded AT 0 + ... , (rip and cut [like an XorShiftRNG]) , THE AIM IS CRUSH ... the purest form of releantless struggle ["Victory and defeat - being two imposters just the same" an echo in the curent cave: From           * "If you can meet with Triumph and Disaster
+       *  And treat those two impostors just the same;" -Rudyard Kipling (if), [https://www.poetryfoundation.org/poems/46473/if---]
+       * Grow [up], towards (and with) the [higher] standards of reason.
+       * Root [down], to [and with] an undescovered [goal] of internal death,
+       * "The Death of A Salesman" [a book title] + the rough description fair editing   pure abstraction meets  recursiveness absorbing and leveraging them
+       * to slay MAD beasts inside
+       *  - growng strong in faculties of inate ability letting clarity wither as sophestry polutes
+       * the light we need to see things clearly
+       * Compile better working patterns by learning the most effective abstractions lower level patterns recipes for success.
        */
   '''
 
-## Futures<?> NEED YOU!!! 🫵 [at least consider that the request is made]
+## Future<?> NEEDS YOU!!! 🫵
 
     [DISCLAIMER]
         If you are weak I'll be weaker for it,

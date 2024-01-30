@@ -16,22 +16,9 @@ as all references, in actuality |-/ /-| [&(really) from nothing] are actually [r
 
 UNFORTUNATELY, understanding nothing (or even JUST NOT ENOUGH) of __ANYTHING__
 THAT IS __SIGNIFICANT__ like NATURES[<-strong-link-with->]NOTHING ... in particular, (without the sound refrences TO something OR (considerate, decent people) can cause SERIOUS LOSS) 
+Nothing can negate nothing because, nothing is negatable with nothing to negate.
+Nothing allows us to reliably change nothing in observance of nature [I Think] nothing is like the average value of sin(⏳)  etc...
 
-
-
-
-as nothing but that 
-
-form without a significant measure 
-               2) Nothing can negate nothing because, nothing is negatable with nothing to negate.
-               3) Nothing allows us to reliably change nothing in observance of nature nothing does not exist 
-
-with the purity of nothing as o only the and reality through observation, very much in a pure action the nature of observation
-
-
-the experience's reality in the reality of it our nature locked in our deepest thoughtsphilosphicaly in the absence in our deepest thought through will
-grasping an understanding without flexing ouselves
-regarding lines of thought as but the effort to reframe our own
 
 
 Good code takes skill.

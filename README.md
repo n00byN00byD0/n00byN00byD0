@@ -1,14 +1,31 @@
-- 👋 Hi, I’m @n00byN00byD0
-- 👀 I’m interested in becoming a full stack developer.
-- 🌱 I’m currently learning UML, SQL, Vert.x.
-- 💞️ I’m looking to collaborate on Java Server code - (under instruction!).
-- 📫 How to reach me n00byN00byD0@pm.me
-- 😄 Pronouns: [KISS or surprise me! ❤️‍🔥]
-- ⚡ Fun fact: Nothing is as pure a concept as can be.
+イノセンス   ❤️‍🔥 [N]othing is as pure a concept any,
 
-Hola! Hello!
+A gift of nothing is time and space to grant a moments freedom,
 
-A few extra factoids relating to communication here:
+Nearly 45 years of life has gone from since before I was a child,
+
+All that has got this far burns faster than time itself,
+
+I am here to offer nothing up,  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+ - enjoy -
+
+Contact would be apprecated ::  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+⏳ n00byN00byD0@pm.me ⏳
+   
+I'm currently "still learning the ropes" so ...  
+ 
+Please consider everything here, for now, to be under :
+  
+__🄯 Apache License Version 2.0 🄯__  
+ https://www.apache.org/licenses/LICENSE-2.0.txt
+
+
 
 NOTHING is PERFECTLY-easy to PERFECTLY understand (in ANY situation) ->  __THUS__ ------>   !! GONE !!    (if you don't believe me feel free to point out where nothing is now)
 as all references, in actuality |-/ /-| [&(really) from nothing] are actually [real] OBSERVATIONS OR IDEAS (good + bad, ARE YOURS --- well articulated [should be] pooled and [reflected on / rememberd])

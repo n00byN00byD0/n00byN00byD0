@@ -4,11 +4,18 @@
 - 💞️ I’m looking to collaborate on Java Server code - (under instruction!).
 - 📫 How to reach me n00byN00byD0@pm.me
 - 😄 Pronouns: [KISS or surprise me! ❤️‍🔥]
-- ⚡ Fun facts: 1) Nothing is as pure a concept as can be.
-                  2) NOTHING is PERFECTLY-easy to PERFECTLY understand (in ANY situation) ->  __THUS__ ------>   !! GONE !!    (if you don't believe me feel free to point out where nothing is now) 
-                     as all references, in actuality |-/ /-| [really from nothing] are actually [real (being)] OBSERVATIONS OR IDEAS to it are have to just
-                UNFORTUNATELY, understanding nothing (or even just NOT ENOUGH) of __ANYTHING__ THAT IS __SIGNIFICANT__ (but NOTHING in particular) without the sound refrences TO something can cause delusion mistakes
+- ⚡ Fun fact: Nothing is as pure a concept as can be.
 
+Hola! Hello!
+
+A few extra factoids relating to communication here:
+
+NOTHING is PERFECTLY-easy to PERFECTLY understand (in ANY situation) ->  __THUS__ ------>   !! GONE !!    (if you don't believe me feel free to point out where nothing is now)
+as all references, in actuality |-/ /-| [&(really) from nothing] are actually [real] OBSERVATIONS OR IDEAS (good + bad, ARE YOURS --- well articulated [should be] pooled and [reflected on / rememberd])
+
+
+UNFORTUNATELY, understanding nothing (or even JUST NOT ENOUGH) of __ANYTHING__
+THAT IS __SIGNIFICANT__ like NATURES[<-strong-link-with->]NOTHING ... in particular, (without the sound refrences TO something OR (considerate, decent people) can cause SERIOUS LOSS) 
 
    of (and from it) don't exist anyway except as ideas
 

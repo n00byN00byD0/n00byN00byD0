@@ -17,73 +17,66 @@ as all references, in actuality |-/ /-| [&(really) from nothing] are actually [r
 UNFORTUNATELY, understanding nothing (or even JUST NOT ENOUGH) of __ANYTHING__
 THAT IS __SIGNIFICANT__ like NATURES[<-strong-link-with->]NOTHING ... in particular, (without the sound refrences TO something OR (considerate, decent people) can cause SERIOUS LOSS) 
 
-   of (and from it) don't exist anyway except as ideas
-
-   to anything else as not
 
 
-   something relatively similar before as: not just
+
+as nothing but that 
+
+form without a significant measure 
+               2) Nothing can negate nothing because, nothing is negatable with nothing to negate.
+               3) Nothing allows us to reliably change nothing in observance of nature nothing does not exist 
+
+with the purity of nothing as o only the and reality through observation, very much in a pure action the nature of observation
 
 
-  as what was not presnt as any part of anything ever
-
-  just nothing that was only at the root of the origin
-
-
-  as nothing but that 
-
-   form without a significant measure 
-                  2) Nothing can negate nothing because, nothing is negatable with nothing to negate.
-                  3) Nothing allows us to reliably change nothing in observance of nature nothing does not exist 
-
-  with the purity of nothing as o only the and reality through observation, very much in a pure action the nature of observation
+the experience's reality in the reality of it our nature locked in our deepest thoughtsphilosphicaly in the absence in our deepest thought through will
+grasping an understanding without flexing ouselves
+regarding lines of thought as but the effort to reframe our own
 
 
-   the experience's reality in the reality of it our nature locked in our deepest thoughtsphilosphicaly in the absence in our deepest thought through will
-  grasping an understanding without flexing ouselves
-  regarding lines of thought as but the effort to reframe our own
-  
-  '''
-      Good code takes skill.
-      Powerful code does too.
-      
-      Unfortunately the "Eye of Sauron",
-            -a resonating fiction of a pure magical evil -J. R. R. Tolkien
-      Seems to have aproximately manifested in and into Google.
+Good code takes skill.
+Powerful code does too.
 
-      
-      
-      /**
-       * TODO:
-       * 1) Sprinkle [with decernment mainly suspended] SEED ideas (WITHOUT JUNGLE JUICING the tourque required to twist and twine disconeted rambles of the ) ...
-       *    ... "que, cera, cera" (in amoungst) the undesirable mess a RESULT resides (or at least should) ::
-       *                [just a small trace of anything that actually grows] HAS SOME root source of growth.
-       *       "Srg Dignam: Whoopty-F*****g-Do..." [The Departed (movie)]  ::  https://youtu.be/vInFuLgwR1U?si=1ZZ4fkTPnBn1pGCp
-       *           Soup of malformed fairly mindless brainstorming yeilds ::
-       *             [Potentially only enough to trigger a begrudging recognition] of what living things notice ::
-       *   [THE HOLLY GRAIL HERE, could hypothetically EXIST but from logic CAN'T be FOUND and ABSOLUTELY CAN'T be GRASPED / UTILIZED] ::
-       *       Hypothetically AT perfection in description [impossible] map(s) of fine utility can resonate and ABSORB OR BE ABSORBED 
-       *        cos cos  it's just the flicker & [evidence - SANS EXTRA context provides only what it is - (is what?) - is evidence!? [begs] of what? - a link in something, somehow! SO WHAT?! LIFE in ART ≅ Recognition of resonance some time [a fizzle of what we strive for but a waste of time] sink where 
-       * 2) Reap the ReaperThread way [Sun's Java source covered ReaperThreads]: to starve everything [no evidence that anything ever lived means
-       *    atainment of STERILITY [death domain] REHTORIC exists [the area here AND [target]] now is recycling what is just resource material (as focus in killing mode allows (rip & cut *MAD Maths blood is The 'sink' with the purity that bleeds into a real reaper feel / [[pause]], repeat] . [crush, filter, re-edit]
-       * There is enough seed seeded AT 0 + ... , (rip and cut [like an XorShiftRNG]) , THE AIM IS CRUSH ... the purest form of releantless struggle ["Victory and defeat - being two imposters just the same" an echo in the curent cave: From           * "If you can meet with Triumph and Disaster
-       *  And treat those two impostors just the same;" -Rudyard Kipling (if), [https://www.poetryfoundation.org/poems/46473/if---]
-       * Grow [up], towards (and with) the [higher] standards of reason.
-       * Root [down], to [and with] an undescovered [goal] of internal death,
-       * "The Death of A Salesman" [a book title] + the rough description fair editing   pure abstraction meets  recursiveness absorbing and leveraging them
-       * to slay MAD beasts inside
-       *  - growng strong in faculties of inate ability letting clarity wither as sophestry polutes
-       * the light we need to see things clearly
-       * Compile better working patterns by learning the most effective abstractions lower level patterns recipes for success.
-       */
-  '''
+Unfortunately the "Eye of Sauron",
+   -a resonating fiction of a pure magical evil -J. R. R. Tolkien
+Seems to have aproximately manifested in and into Google.
 
-## Future<?> NEEDS YOU!!! 🫵
+
+## [Ideas Under Construction}
+/**
+ * TODO:
+ * 1) Sprinkle [with decernment mainly suspended] SEED ideas (WITHOUT JUNGLE JUICING the tourque required to twist and twine disconeted rambles of the ) ...
+ *    ... "que, cera, cera" (in amoungst) the undesirable mess a RESULT resides (or at least should) ::
+ *                [just a small trace of anything that actually grows] HAS SOME root source of growth.
+ *       "Srg Dignam: Whoopty-F*****g-Do..." [The Departed (movie)]  ::  https://youtu.be/vInFuLgwR1U?si=1ZZ4fkTPnBn1pGCp
+ *           Soup of malformed fairly mindless brainstorming yeilds ::
+ *             [Potentially only enough to trigger a begrudging recognition] of what living things notice ::
+ *   [THE HOLLY GRAIL HERE, could hypothetically EXIST but from logic CAN'T be FOUND and ABSOLUTELY CAN'T be GRASPED / UTILIZED] ::
+ *       Hypothetically AT perfection in description [impossible] map(s) of fine utility can resonate and ABSORB OR BE ABSORBED 
+ *        cos cos  it's just the flicker & [evidence - SANS EXTRA context provides only what it is - (is what?) - is evidence!? [begs] of what? - a link in something, somehow! SO WHAT?! LIFE in ART ≅ Recognition of resonance some time [a fizzle of what we strive for but a waste of time] sink where 
+ * 2) Reap the ReaperThread way [Sun's Java source covered ReaperThreads]: to starve everything [no evidence that anything ever lived means
+ *    atainment of STERILITY [death domain] REHTORIC exists [the area here AND [target]] now is recycling what is just resource material (as focus in killing mode allows (rip & cut *MAD Maths blood is The 'sink' with the purity that bleeds into a real reaper feel / [[pause]], repeat] . [crush, filter, re-edit]
+ * There is enough seed seeded AT 0 + ... , (rip and cut [like an XorShiftRNG]) , THE AIM IS CRUSH ... the purest form of releantless struggle ["Victory and defeat - being two imposters just the same" an echo in the curent cave: From           * "If you can meet with Triumph and Disaster
+ *  And treat those two impostors just the same;" -Rudyard Kipling (if), [https://www.poetryfoundation.org/poems/46473/if---]
+ * Grow [up], towards (and with) the [higher] standards of reason.
+ * Root [down], to [and with] an undescovered [goal] of internal death,
+ * "The Death of A Salesman" [a book title] + the rough description fair editing   pure abstraction meets  recursiveness absorbing and leveraging them
+ * to slay MAD beasts inside
+ *  - growng strong in faculties of inate ability letting clarity wither as sophestry polutes
+ * the light we need to see things clearly
+ * Compile better working patterns by learning the most effective abstractions lower level patterns recipes for success.
+ */
+'''
+
+## Future<🌍> local;   //  NEEDS YOU!!!  🫵
 
     [DISCLAIMER]
+    __WE ALL CAN MAKE MISTAKES
+    
         If you are weak I'll be weaker for it,
-            -I'd like to be meek for a while.
-                (Mach's gut - Mach's besser)
+            -I'd like to be meek here for a while;
+            
+                    (Mach's gut - Mach's besser)
                 
             ____________________________________________
          (       ---  don't die @here!!  ---              )
